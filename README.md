@@ -1,4 +1,5 @@
 ## Hi there 👋
+my name is victor isiguzor uzoma with years of experiences as a mechanical maintainance engineer and also in data analytics personnel ⚡
 
 <!--
 **Amor874/Amor874** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
