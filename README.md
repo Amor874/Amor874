@@ -1,7 +1,8 @@
 ## Hi there 👋
 my name is victor isiguzor uzoma with years of experiences as a mechanical maintainance engineer and also in data analytics personnel ⚡
 
-let's connect : victoruzoma874@gmail.com 
+let's connect : 
+💼 victoruzoma874@gmail.com 
 fun fact 😀: i love bring ideas and dreams to reality
 
 
